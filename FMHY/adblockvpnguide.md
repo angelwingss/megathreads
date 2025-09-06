@@ -1,6 +1,6 @@
 ***
 ***
-**[◄◄ Back to Wiki Index](https://github.com/angelwingss/megathreads/edit/main/FMHY/adblockvpnguide.md))**
+**[◄◄ Back to Wiki Index](https://github.com/angelwingss/megathreads/edit/main/FMHY/))**
 ***
 ***
 
