@@ -1,6 +1,6 @@
 ***
 ***
-**[◄◄ Back to Wiki Index](https://www.reddit.com/r/FREEMEDIAHECKYEAH/wiki/index)**
+**[◄◄ Back to Wiki Index]([https://www.reddit.com/r/FREEMEDIAHECKYEAH/wiki/index](https://github.com/angelwingss/megathreads/edit/main/FMHY/adblockvpnguide.md))**
 ***
 ***
 
